@@ -1,4 +1,4 @@
 ### **bioinformatics student !**   
 she/her  
   
-![happy cat](https://github.com/ryljerome/ryljerome/blob/main/happy-cat-silly-cat.gif)
+![happy cat](https://tenor.com/view/black-cat-heart-gif-15478685760485310159)
